@@ -1,6 +1,6 @@
 # :pushpin: CYCLE
 게임 플레이 영상
->
+>https://www.youtube.com/watch?v=qx9nb6YZ_6s
 
 </br>
 
